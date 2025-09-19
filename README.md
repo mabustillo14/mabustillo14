@@ -1,8 +1,8 @@
 ### Hello World! 👋
 
-**Data Analyst 📊 | Product Designer 🖌️**
+**AI Engineer 🤖 | Data Analyst 📊 | AR Creator 🖌️**
 
-I've worked in diverse fields such as Marketing, Edtech, Fintech and Product in disruptive markets.
+I have worked in diverse fields such as Marketing, Edtech, Fintech, and Product in disruptive markets, to drive decision-making and improve the efficiency of products and services.
 
 **Google Certified Educator Level I & II | Applied Digital Skills Ambassador by Google 💻🙌**
 
